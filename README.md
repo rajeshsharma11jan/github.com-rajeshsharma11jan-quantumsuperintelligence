@@ -1,0 +1,2 @@
+# github.com-rajeshsharma11jan-quantumsuperintelligence
+Quantum superintelligence
